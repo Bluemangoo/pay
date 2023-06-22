@@ -1,4 +1,4 @@
-<img align="right" width="375" height="667" src="https://s2.loli.net/2023/06/22/rPZTqhucVJ9apIs.jpg">
+<img align="right" width="375" height="667" src="https://s2.loli.net/2023/06/22/F4ZgyqJf2Hne5wX.jpg">
 
 # Pay
 
